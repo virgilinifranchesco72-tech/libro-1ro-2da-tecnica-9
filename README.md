@@ -1,5 +1,29 @@
-# 1ro 2da — El libro del curso
+# El aula que aprendió a escucharse
 
-La historia completa está en [LIBRO.md](LIBRO.md).
+**Escritor: primero segunda**
 
-Libro coral ambientado en 1ro 2da de Técnica 9: 9 temporadas y 290 capítulos, con una materia y una voz docente por temporada. Educación Física tiene dos profesores, Federico Acosta y Julieta Sosa; Inglés está a cargo de la profesora Martina Green. Los alumnos destacados son Tomás Benítez, delegado; Agustina Ríos, subdelegada; y Micaela Medina, auxiliar.
+Libro de 1ro 2da · Técnica 9.
+
+## Ediciones
+
+- [Libro completo en PDF](EL_AULA_QUE_APRENDIO_A_ESCUCHARSE.pdf)
+- [Versión editable en Markdown](LIBRO.md)
+
+La edición en PDF está diseñada como un libro real: portada, índice, 290 capítulos de exactamente dos páginas cada uno y contratapa.
+
+## Estructura
+
+- 9 temporadas.
+- Matemáticas: 25 capítulos.
+- Naturales: 25 capítulos.
+- Taller: 60 capítulos, dividido en tres bloques.
+- Música: 25 capítulos.
+- Sociales: 30 capítulos, con dos profesoras y un cambio de docente a mitad de temporada.
+- Construcción de la ciudadanía: 25 capítulos.
+- Prácticas del Lenguaje: 25 capítulos.
+- Educación Física: 50 capítulos, con 1ro 1ra y dos profesores.
+- Inglés: 25 capítulos, a cargo de una profesora.
+
+## Personajes destacados
+
+Tomás Benítez es el delegado, Agustina Ríos la subdelegada y Micaela Medina la auxiliar. Sandra Quiroga es la preceptora que coordina el curso y cuida la convivencia.
