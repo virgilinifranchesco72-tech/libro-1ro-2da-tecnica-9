@@ -604,78 +604,78 @@ Yo, Ernesto, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro
 
 ## Temporada 5 — Sociales
 
-**Docente narrador/a:** Prof. Ricardo Benítez / suplente Prof. Clara Ayala
+**Docente narrador/a:** Prof. Laura Benítez / suplente Prof. Clara Ayala
 **Capítulos:** 30
 
-Ricardo inicia el recorrido histórico y, en el capítulo 16, se ausenta para participar de una investigación histórica en la Patagonia; Clara Ayala toma el curso como suplente y continúa el proyecto.
+Laura inicia el recorrido histórico y, en el capítulo 16, se ausenta para participar de una investigación histórica en la Patagonia; Clara Ayala toma el curso como suplente y continúa el proyecto.
 
 ### Cambio de docente
 
-Ricardo Benítez narra los capítulos 1 al 15. En el capítulo 16 comienza una licencia para participar en una investigación histórica en la Patagonia. Clara Ayala lo reemplaza desde el capítulo 17 hasta el final y transforma la ausencia en una investigación compartida.
+Laura Benítez narra los capítulos 1 al 15. En el capítulo 16 comienza una licencia para participar en una investigación histórica en la Patagonia. Clara Ayala la reemplaza desde el capítulo 17 hasta el final y transforma la ausencia en una investigación compartida.
 
 **Capítulo 1 — El barrio cuenta**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 2 — Un archivo misterioso**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 3 — Mapas que hablan**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 4 — La voz de los abuelos**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 5 — Una fecha discutida**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 6 — La plaza y sus historias**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 7 — El viaje de las ideas**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 8 — Fuentes confiables**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 9 — La investigación crece**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 10 — La exposición**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 11 — El barrio cuenta — parte 2**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 12 — Un archivo misterioso — parte 2**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 13 — Mapas que hablan — parte 2**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 14 — La voz de los abuelos — parte 2**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 15 — Una fecha discutida — parte 2**
 
-Yo, Ricardo y Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 16 — La licencia de Ricardo**
 
-Yo, Ricardo Benítez, les conté que debía ausentarme para participar en una investigación histórica en la Patagonia. No me fui sin dejarles una misión: reconstruir la historia de la escuela con fuentes confiables. La profesora Clara Ayala aceptó reemplazarme y prometió cuidar el proyecto sin borrar mi voz.
+Yo, Laura Benítez, les conté que debía ausentarme para participar en una investigación histórica en la Patagonia. No me fui sin dejarles una misión: reconstruir la historia de la escuela con fuentes confiables. La profesora Clara Ayala aceptó reemplazarme y prometió cuidar el proyecto sin borrar mi voz.
 
 **Capítulo 17 — La mirada de Clara**
 
