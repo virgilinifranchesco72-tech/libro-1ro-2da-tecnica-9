@@ -24,6 +24,12 @@
 - **1ro 1ra:** curso invitado y rival amistoso durante Educación Física.
 - **Los profesores:** cada temporada cambia de materia y de voz narrativa.
 
+## Alumnos destacados
+
+- **Tomás Benítez — delegado del curso:** organiza las reuniones de 1ro 2da, transmite las ideas del grupo y suele intentar mantener la calma cuando todos hablan al mismo tiempo.
+- **Agustina Ríos — subdelegada:** acompaña a Tomás, defiende las opiniones de sus compañeros y detecta problemas antes de que se conviertan en una catástrofe escolar.
+- **Lautaro Medina — auxiliar:** ayuda a repartir materiales, ordenar el aula y asistir a docentes y compañeros. Su talento especial es aparecer con lo que falta justo cuando nadie sabe dónde quedó.
+
 ## La preceptora
 
 **Sandra Quiroga** es la preceptora de 1ro 2da. Es la adulta que conoce los horarios, escucha los conflictos y recuerda que las reglas existen para que todos puedan aprender. No necesita gritar: lleva una libreta, una mirada firme y una paciencia entrenada. Cuando el curso se descontrola, Sandra interviene como una jefa justa: separa el problema de la persona, escucha a todos y convierte el reto en una oportunidad para mejorar.
