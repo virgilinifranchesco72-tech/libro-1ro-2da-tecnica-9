@@ -615,63 +615,63 @@ Laura Benítez narra los capítulos 1 al 15. En el capítulo 16 comienza una lic
 
 **Capítulo 1 — El barrio cuenta**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 2 — Un archivo misterioso**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 3 — Mapas que hablan**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 4 — La voz de los abuelos**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 5 — Una fecha discutida**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 6 — La plaza y sus historias**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 7 — El viaje de las ideas**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 8 — Fuentes confiables**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 9 — La investigación crece**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 10 — La exposición**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 11 — El barrio cuenta — parte 2**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 12 — Un archivo misterioso — parte 2**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 13 — Mapas que hablan — parte 2**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 14 — La voz de los abuelos — parte 2**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 15 — Una fecha discutida — parte 2**
 
-Yo, Laura o Clara, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Laura, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de ciencias sociales en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 16 — La licencia de Ricardo**
 
