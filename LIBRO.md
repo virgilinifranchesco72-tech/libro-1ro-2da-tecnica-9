@@ -949,10 +949,10 @@ Yo, Camila, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 
 
 ## Temporada 8 — Educación Física
 
-**Docente narrador/a:** Prof. Federico Acosta y 1ro 1ra
+**Docentes narradores:** Prof. Federico Acosta y Prof. Julieta Sosa, con 1ro 1ra
 **Capítulos:** 50
 
-Federico une a 1ro 2da con 1ro 1ra en desafíos deportivos donde competir importa menos que aprender a trabajar en equipo.
+Federico y Julieta unen a 1ro 2da con 1ro 1ra en desafíos deportivos donde competir importa menos que aprender a trabajar en equipo.
 
 ### Participación especial
 
@@ -960,307 +960,307 @@ En esta temporada participa 1ro 1ra. Los dos cursos comparten entrenamientos, to
 
 **Capítulo 1 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 2 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 3 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 4 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la estrategia. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la estrategia. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 5 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 6 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 7 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el pase imposible. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el pase imposible. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 8 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de caerse y volver. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de caerse y volver. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 9 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la final compartida. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la final compartida. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 10 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 11 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 12 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 13 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 14 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la estrategia — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la estrategia — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 15 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 16 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 17 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el pase imposible — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el pase imposible — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 18 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de caerse y volver — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de caerse y volver — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 19 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la final compartida — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la final compartida — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 20 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender — parte 2. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 21 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 22 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 23 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 24 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la estrategia — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la estrategia — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 25 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 26 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 27 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el pase imposible — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el pase imposible — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 28 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de caerse y volver — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de caerse y volver — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 29 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la final compartida — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la final compartida — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 30 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender — parte 3. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 31 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 32 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 33 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 34 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la estrategia — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la estrategia — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 35 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 36 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 37 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el pase imposible — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el pase imposible — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 38 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de caerse y volver — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de caerse y volver — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 39 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la final compartida — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la final compartida — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 40 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender — parte 4. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 41 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el equipo se arma — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 42 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de reglas para empezar — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 43 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de 1ro 1ra entra en juego — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 44 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la estrategia — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la estrategia — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 45 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de correr y escuchar — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 46 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el torneo amistoso — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 47 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de el pase imposible — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de el pase imposible — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 48 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de caerse y volver — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de caerse y volver — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 49 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de la final compartida — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de la final compartida — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 **Capítulo 50 — El desafío compartido**
 
-Yo, Federico, reuní a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
+Federico y Julieta reunimos a 1ro 2da y 1ro 1ra para una actividad de jugar también es aprender — parte 5. Hubo nervios, reglas que aprender y alguna protesta digna de una final mundial, pero ambos cursos terminaron entendiendo que el objetivo era cuidarse y jugar en equipo.
 
 ## Temporada 9 — Inglés
 
 **Docente narrador/a:** Prof. Martín Greene
 **Capítulos:** 25
 
-Martín narra el cierre del año: el curso aprende inglés, prepara una presentación y descubre que equivocarse también es una forma de avanzar.
+Martina narra el cierre del año: el curso aprende inglés, prepara una presentación y descubre que equivocarse también es una forma de avanzar.
 
 **Capítulo 1 — Hello, 1ro 2da**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 2 — My classroom**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 3 — A simple question**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 4 — The mystery sentence**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 5 — Words in motion**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 6 — A postcard**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 7 — Listening carefully**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 8 — The group project**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 9 — Mistakes are useful**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 10 — The final presentation**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 11 — Hello, 1ro 2da — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 12 — My classroom — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 13 — A simple question — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 14 — The mystery sentence — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 15 — Words in motion — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 16 — A postcard — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 17 — Listening carefully — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 18 — The group project — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 19 — Mistakes are useful — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 20 — The final presentation — parte 2**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 21 — Hello, 1ro 2da — parte 3**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 22 — My classroom — parte 3**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 23 — A simple question — parte 3**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 24 — The mystery sentence — parte 3**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
 
 **Capítulo 25 — Words in motion — parte 3**
 
-Yo, Martín, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
+Yo, Martina, llegué al aula con una pregunta: ¿qué podemos descubrir hoy? 1ro 2da discutió, probó ideas y convirtió un pequeño problema de inglés en una aventura colectiva. Al cerrar la clase, cada estudiante se llevó una conclusión y una nueva pregunta para el capítulo siguiente.
