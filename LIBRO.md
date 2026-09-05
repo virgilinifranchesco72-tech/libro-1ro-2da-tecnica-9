@@ -28,7 +28,7 @@
 
 - **Tomás Benítez — delegado del curso:** organiza las reuniones de 1ro 2da, transmite las ideas del grupo y suele intentar mantener la calma cuando todos hablan al mismo tiempo.
 - **Agustina Ríos — subdelegada:** acompaña a Tomás, defiende las opiniones de sus compañeros y detecta problemas antes de que se conviertan en una catástrofe escolar.
-- **Lautaro Medina — auxiliar:** ayuda a repartir materiales, ordenar el aula y asistir a docentes y compañeros. Su talento especial es aparecer con lo que falta justo cuando nadie sabe dónde quedó.
+- **Micaela Medina — auxiliar:** ayuda a repartir materiales, ordenar el aula y asistir a docentes y compañeros. Su talento especial es aparecer con lo que falta justo cuando nadie sabe dónde quedó.
 
 ## La preceptora
 
